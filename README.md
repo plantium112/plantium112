@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @plantium112
+- 📫 How to reach me @plantium@mas.to on mastodon
+- 😄 Pronouns: he/him
